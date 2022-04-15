@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## 我要看我老婆洗澡 要和慧慧一块洗澡
 
 You can use the [editor on GitHub](https://github.com/Lingshobby/LZYGXH/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
